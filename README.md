@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning software development at college.
 - 📫 Reach to me on dicsord at: Swan#2366
 
-For collaborations, leave me a message on discord and I'll make sure to respons as soon as possible!
+For collaborations, leave me a message on discord and I'll make sure to respond as soon as possible!
